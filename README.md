@@ -1,4 +1,4 @@
-Innovative Devices to prevent Rail Disasters!
+The project we have developed is "Innovative Devices to prevent Rail Disasters!"
 
 Those were the days when we used to peep through the Science Laboratory windows to have a glimpse of the exciting working models getting prepared by our seniors under the able guidance of our Science teacher, Mr. T Charles Studd. The projects included interesting toys of high scientific values such as hydraulic cranes, tipper Lorries, fountain from the sky, mini thermal power station which used to work on steam with hissing sound. These exhibits were all slated to be showcased at the annual district science fair. We thought how fortunate our seniors were and we were eagerly waiting for our turn
 
